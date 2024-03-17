@@ -2,7 +2,7 @@
 
 - 👀 I’m interested in learning to use Linux on my new Asus Chromebook w/8GB RAM & 256GB Memory. I am a beginner, 		 so please be helpful as well as patient with me.
 
-- 📫 How to reach me ... patriot.mike67@gmail.com
+- 📫 How to reach me ... 
 
 - 😄 My pronouns are: Get Bent
 
